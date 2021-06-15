@@ -4,4 +4,4 @@ shit you should note:
 
 i make games, a discord bot, and web stuff.
 
-other things i am good at, art, being a dumbass.
+other things i am good at, art, and being a dumbass.
